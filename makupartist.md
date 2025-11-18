@@ -1,1 +1,1 @@
-vijaylaxmimakupartist.com
+https//vijaylaxmimakupartist.com
